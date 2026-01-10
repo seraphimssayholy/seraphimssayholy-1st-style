@@ -7,6 +7,10 @@ $\color{#BFE6FF
 $\color{#BFE6FF
 }\LARGE{\{WELCOME}}$
 
+$\color{#BFE6FF
+}\LARGE{\{𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
+}}$
+
 Thanks for scrolling so far and welcome to my real bio, hehe ꉂ(ˊᗜˋ*)♡ ! 
 
 There are things i wanna say here, so please don't forget to read. Thank you <3 ! 
