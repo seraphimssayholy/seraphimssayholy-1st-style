@@ -1,1 +1,1 @@
-<p HELLO="color:blue;">
+$\color{baby blue}\large{\font{HELLO}}$
