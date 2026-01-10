@@ -28,9 +28,9 @@ $\color{#BFE6FF
 
 ʚଓ/ I love to draw and music
 
-ʚଓ/ Languages i speak ; 🇬🇧🇺🇸/🇮🇩/🇮🇹(a little) 
+ʚଓ/ Languages i speak ; 🇬🇧🇺🇸.🇮🇩
 
-ʚଓ/ Languages that i study on right now : 🇸🇦/🇮🇹/🇷🇺(maybe)
+ʚଓ/ Languages that i study on right now : 🇸🇦.🇮🇹
 
 $\color{#BFE6FF
 }\LARGE{\{▶︎ •၊၊||၊|။|||| |
@@ -81,4 +81,26 @@ $\color{#BFE6FF
 ʚଓ/ Copying other's
 
 ʚଓ/ Being rascist. 
+
+<img src="Tak berjudul306_20260110190208.png">
+$\color{#BFE6FF
+}\LARGE{\{That's}}$
+$\color{#BFE6FF
+}\LARGE{\{all}}$
+$\color{#BFE6FF
+}\LARGE{\{thanks}}$
+$\color{#BFE6FF
+}\LARGE{\{for}}$
+$\color{#BFE6FF
+}\LARGE{\{reading}}$
+
+$\color{#BFE6FF
+}\LARGE{\{Have}}$$\color{#BFE6FF
+}\LARGE{\{a}}$$\color{#BFE6FF
+}\LARGE{\{nice}}$$\color{#BFE6FF
+}\LARGE{\{day}}$$\color{#BFE6FF
+}\LARGE{\{Bye}}$$\color{#BFE6FF
+}\LARGE{\{Bye}}$
+$\color{#BFE6FF
+}\LARGE{\{ヾ(＾-＾)ノ}}$
 
