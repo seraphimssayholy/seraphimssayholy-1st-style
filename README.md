@@ -40,3 +40,8 @@ $\color{#BFE6FF
 
 ʚଓ/ Feel awkward? don't worry, im not forcing you to interact. You can just leave and have fun ^^ ! 
 
+<img src="Tak berjudul305_20260110174121.png">
+
+
+$\color{#BFE6FF
+}\LARGE{\{DNI}}$
