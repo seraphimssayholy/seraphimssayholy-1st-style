@@ -3,5 +3,6 @@
 $\color{#BFE6FF
 }\LARGE{\{HELLO!}}$
 
-$\color{#BFE6FF
-}\L{\{welcome hi}}$
+Thanks for scrolling so far and welcome to my real bio, hehe ꉂ(ˊᗜˋ*)♡ ! 
+
+There are things i wanna say here, so please don't forget to read. Thank you <3 ! 
