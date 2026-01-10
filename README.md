@@ -18,6 +18,26 @@ There are things i wanna say here, so please don't forget to read. Thank you <3 
 <img src="Tak berjudul305_20260110174007.png">
 
 $\color{#BFE6FF
+}\LARGE{\{Me}}$
+
+$\color{#BFE6FF
+}\LARGE{\{𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
+}}$
+
+ʚଓ/ INFJ . A ` 6w5
+
+ʚଓ/ I love to draw and music
+
+ʚଓ/ Languages i speak ; 🇬🇧🇺🇸/🇮🇩/🇮🇹(a little) 
+
+ʚଓ/ Languages that i study on right now : 🇸🇦/🇮🇹/🇷🇺(maybe)
+
+$\color{#BFE6FF
+}\LARGE{\{▶︎ •၊၊||၊|။|||| |
+}}$
+
+
+$\color{#BFE6FF
 }\LARGE{\{BASIC}}$
 $\color{#BFE6FF
 }\LARGE{\{INFOTMATIONS}}$
@@ -45,3 +65,20 @@ $\color{#BFE6FF
 
 $\color{#BFE6FF
 }\LARGE{\{DNI}}$
+$\color{#BFE6FF
+}\LARGE{\{PLEASE}}$
+$\color{#BFE6FF
+}\LARGE{\{!!!}}$
+
+$\color{#BFE6FF
+}\LARGE{\{𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
+}}$
+
+ʚଓ/ Swearing to ragebait
+
+ʚଓ/ Fake sweet (i don't like this most, go away please) 
+
+ʚଓ/ Copying other's
+
+ʚଓ/ Being rascist. 
+
