@@ -28,7 +28,7 @@ $\color{#BFE6FF
 
 ʚଓ/ I love to draw and music
 
-ʚଓ/ Languages i speak ; 🇬🇧🇺🇸.🇮🇩
+ʚଓ/ Languages i speak : 🇬🇧🇺🇸.🇮🇩
 
 ʚଓ/ Languages that i study on right now : 🇸🇦.🇮🇹
 
@@ -40,7 +40,7 @@ $\color{#BFE6FF
 $\color{#BFE6FF
 }\LARGE{\{BASIC}}$
 $\color{#BFE6FF
-}\LARGE{\{INFOTMATIONS}}$
+}\LARGE{\{INFORMATIONS}}$
 
 $\color{#BFE6FF
 }\LARGE{\{𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
@@ -81,8 +81,6 @@ $\color{#BFE6FF
 ʚଓ/ Copying other's
 
 ʚଓ/ Being rascist. 
-
-<img src="Tak berjudul306_20260110190208.png">
 
 $\color{#BFE6FF
 }\LARGE{\{That's}}$
