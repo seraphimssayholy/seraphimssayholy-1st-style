@@ -32,9 +32,11 @@ $\color{#BFE6FF
 
 ʚଓ/ Languages that i study on right now : 🇸🇦.🇮🇹
 
+
 $\color{#BFE6FF
 }\LARGE{\{▶︎ •၊၊||၊|။|||| |
 }}$
+
 
 
 $\color{#BFE6FF
