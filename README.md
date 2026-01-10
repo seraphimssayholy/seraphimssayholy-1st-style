@@ -1,2 +1,2 @@
 $\color{#BFE6FF
-}\Large{\textrm{hi}}$
+}\Large{\textsf{hi}}$
