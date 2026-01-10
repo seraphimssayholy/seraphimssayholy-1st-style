@@ -83,6 +83,7 @@ $\color{#BFE6FF
 ʚଓ/ Being rascist. 
 
 <img src="Tak berjudul306_20260110190208.png">
+
 $\color{#BFE6FF
 }\LARGE{\{That's}}$
 $\color{#BFE6FF
@@ -110,3 +111,4 @@ $\color{#BFE6FF
 $\color{#BFE6FF
 }\LARGE{\{ヾ(＾-＾)ノ}}$
 
+<img src="Tak berjudul278_20251018111719.png">
