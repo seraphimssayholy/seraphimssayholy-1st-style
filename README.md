@@ -48,11 +48,11 @@ $\color{#BFE6FF
 
 ʚଓ/ DNC for skins, Please because i made the clothes with my own imagination (im trying my best 😭🫶) 
 
-ʚଓ/ C+H is okay
+ʚଓ/ C+H is okay ✅
 
-ʚଓ/ Interact with will be amazing
+ʚଓ/ Interact with will be amazing ✨
 
-ʚଓ/ But remember, if you already have becoming my friends, you must be honest about something and told me if you overwhelmed by me so we're not misunderstanding each other and hurt one person's feeling
+ʚଓ/ But remember, if you already have becoming my friends, you must be honest about something and told me if you overwhelmed by me so we're not misunderstanding each other and hurt one person's feeling 💝
 
 ʚଓ/ Feel free to talk about your mood to me, i'll listen and do my best to give advice if you needed to. 
 
@@ -95,11 +95,17 @@ $\color{#BFE6FF
 }\LARGE{\{reading}}$
 
 $\color{#BFE6FF
-}\LARGE{\{Have}}$$\color{#BFE6FF
-}\LARGE{\{a}}$$\color{#BFE6FF
-}\LARGE{\{nice}}$$\color{#BFE6FF
-}\LARGE{\{day}}$$\color{#BFE6FF
-}\LARGE{\{Bye}}$$\color{#BFE6FF
+}\LARGE{\{Have}}$
+$\color{#BFE6FF
+}\LARGE{\{a}}$
+$\color{#BFE6FF
+}\LARGE{\{nice}}$
+$\color{#BFE6FF
+}\LARGE{\{day}}$
+
+$\color{#BFE6FF
+}\LARGE{\{Bye}}$
+$\color{#BFE6FF
 }\LARGE{\{Bye}}$
 $\color{#BFE6FF
 }\LARGE{\{ヾ(＾-＾)ノ}}$
