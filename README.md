@@ -18,7 +18,7 @@ There are things i wanna say here, so please don't forget to read. Thank you <3 
 <img src="Tak berjudul305_20260110174007.png">
 
 $\color{#BFE6FF
-}\LARGE{\{Me}}$
+}\LARGE{\{ME}}$
 
 $\color{#BFE6FF
 }\LARGE{\{𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
