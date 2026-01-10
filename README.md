@@ -2,8 +2,10 @@
 
 $\color{#BFE6FF
 }\LARGE{\{HELLO}}$
-𐙚𓏲⋆ ִֶָ ๋𓂃 ⋆ᡣ𐭩
-
+$\color{#BFE6FF
+}\LARGE{\{AND}}$
+$\color{#BFE6FF
+}\LARGE{\{WELCOME}}$
 
 Thanks for scrolling so far and welcome to my real bio, hehe ꉂ(ˊᗜˋ*)♡ ! 
 
