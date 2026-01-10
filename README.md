@@ -1,3 +1,3 @@
 $\color{#BFE6FF
-}\LARGE{\{HELLO THERE :3}}$
+}\LARGE{\{HELLO<b>THERE<b> :3}}$
 
