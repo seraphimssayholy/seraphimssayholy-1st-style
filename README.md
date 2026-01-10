@@ -1,2 +1,2 @@
 $\color{#BFE6FF
-}\LARGE{\{hi}}$
+}\LARGE{\{HELLO !!}}$
