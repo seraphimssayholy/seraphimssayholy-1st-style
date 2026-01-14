@@ -28,7 +28,7 @@ $\color{#BFE6FF
 
 ʚଓ/ I love to draw and music
 
-ʚଓ/ Languages i speak : 🇬🇧🇺🇸.🇮🇩
+ʚଓ/ Languages i speak : 🇬🇧🇺🇸
 
 ʚଓ/ Languages that i study on right now : 🇸🇦.🇮🇹
 
